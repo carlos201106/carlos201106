@@ -23,6 +23,7 @@ Além da programação, sou apaixonado por futebol! Sempre que posso, jogo com o
 
 ## 🎮 Jogos Online
 Gosto de me divertir jogando online. Alguns dos meus jogos favoritos são:
+
 [Valorant](https://preview.redd.it/xc8nyvhsm2a91.jpg?auto=webp&s=e8b9038c13b4bc9c850fec89ad9c54cab9a08155)
 
 ## 📫 Como me encontrar
